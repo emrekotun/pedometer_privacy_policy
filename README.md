@@ -1,0 +1,1 @@
+# pedometer_privacy_policy
